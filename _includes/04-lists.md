@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+Jogging
+Having breakfast
+Go to work
+Go home
+Have a rest 🎉
